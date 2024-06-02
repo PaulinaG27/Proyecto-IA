@@ -10,3 +10,4 @@ Link vídeo entrega 2: https://youtu.be/4HQGPffgGMk
 
 Nota: Nos disculpamos porque intentamos arreglar nuestro vídeo varias veces y por alguna razón la imagen se ve un poco entrecortada, sin embargo la voz se escucha bien y no hay ningún problema con el audio. Agradecemos mucho su comprensión :)
 
+Link vídeo entrega 3: https://youtu.be/fTIp3XG0eQY
